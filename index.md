@@ -7,7 +7,7 @@ The fund has not paid any interest since Jan 1, 2020 citing COVID, and the princ
 
 The fund's email is no longer active as of Jan 30, 2022. I personally put in a substantial amount. I started this group with two goals:
 
-- To find other victims of this fund so we can work together to recover the funds. Please email me at **mvcapitalrecovery@gmail.com**
+- To find other victims of this fund so we can work together to recover the funds. The larger the amount lost the more likely we can get help from the government. Please kindly email me at **mvcapitalrecovery@gmail.com**
 
 - To alert the community of the behaviors of these syndicators
 
